@@ -1,1 +1,1 @@
-RC: BN-3004967 | Food/Farming, Poultry, Fashion Home, Beauty Services, Furniture/Home decorations, General merchandise and general contracts.
+We unite small businesses to create something bigger!, General merchandise & general contracts!  | @BdBavatars, @BdBUC_Farmers, @BdBUC_Token, @BdBUC_NFTs
